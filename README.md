@@ -84,4 +84,4 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
 
 
-
+c+h is ok, chats are welcome, i am very friendly! i like la squadra (...minus ghiaccio.) and overwatch. dont be scared to say hi, i probably wont bite...
