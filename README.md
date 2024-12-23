@@ -26,9 +26,16 @@
 ![pinkbubblesBykastamps](https://github.com/user-attachments/assets/6358baeb-78ad-4945-b008-57831b24e96d)
 ![pinkpenisBystampswhore](https://github.com/user-attachments/assets/2d46059e-5197-4e78-98c3-109123e542a9)
 
+![pocky](https://github.com/user-attachments/assets/cf59e49c-219b-4f56-ba7f-7857c3de9039) ![pink-justice-stamp-by-wandersong-dcz5ddr-fullview](https://github.com/user-attachments/assets/d32c36da-d556-4b2f-956a-7005caf50210) ![pink_stamp_by_ftourini](https://github.com/user-attachments/assets/b25f586c-d173-4aa8-99ad-df87be454df1) 
+![bisexualBysunbirds](https://github.com/user-attachments/assets/8079dbe5-4959-4d65-b8da-1c7e219d018d)
+![beaslutByMyLilShop](https://github.com/user-attachments/assets/c39ee151-f955-4138-bb2b-41f075cea5d5)
+![b19e06b4a4ef944c4532f8713af0ae27caf7808c](https://github.com/user-attachments/assets/6fecc11d-607b-47cf-94c8-9e4d545e54f6)
+
+
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
+
 
 
 
@@ -53,6 +60,12 @@
 ![tumblr_ce754119c7c4ba7505f8cd2280212616_614548ea_100](https://github.com/user-attachments/assets/736985c7-ab74-49f5-b2eb-10e11403dadc)
 ![tumblr_88515d2d1e899c56c7e073646858da1b_963b1a74_100](https://github.com/user-attachments/assets/cef2847d-6aa3-464f-a2b0-41382e03df11)
 
+![a7](https://github.com/user-attachments/assets/f4293314-0b0c-4d61-9f88-622e8e1cd777) ![764cbb3f](https://github.com/user-attachments/assets/e10314c7-ee5b-4ca6-945a-de207dae2787) 
+![3af1eb83](https://github.com/user-attachments/assets/09e4f64b-c4cd-43de-9aca-c10bc4010910) ![USAHANA](https://github.com/user-attachments/assets/41d9977e-d95d-48a8-af5e-d5090d8a3b34)
+![tumblr_7c272da821e236088afab5d205171e7e_4d71ec5a_100](https://github.com/user-attachments/assets/53736187-81a0-4396-b955-de2f93780c01) 
+![excusemeByxXxKILLJ0Y-KULTxXx](https://github.com/user-attachments/assets/f3a4d6f6-2d5e-4a9b-a706-730228e3b0ac)
+
+
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
@@ -72,6 +85,14 @@
 ![di4n2uz-7a831ac7-8514-4353-8a67-8ace1ba0593a](https://github.com/user-attachments/assets/3f8324bc-8bbe-474c-9fd8-03cd25e5e550)
 ![needs_more_gay_by_daakukitsune](https://github.com/user-attachments/assets/f39bb6a3-7644-4136-b5f4-4961d9e91464)
 
+![ee15fc20](https://github.com/user-attachments/assets/5385d9df-5d38-4f1b-b0fc-aabd5a389c29)![biohazardByratlineZ](https://github.com/user-attachments/assets/e8f10fd2-6486-44f3-ad19-1429d268c08e)
+![dc28oi1-946c5b87-8ba2-4d99-912b-c012a13b4747](https://github.com/user-attachments/assets/8a5094c1-2f73-46ee-bdcf-26f6e3c503cf) 
+![irflashbyaunt-arctica](https://github.com/user-attachments/assets/74279593-ed25-47fd-9e7c-f44f992ffb76) 
+![penishate](https://github.com/user-attachments/assets/bbab686d-fc21-4fa8-aace-be1635620d5d) ![stars_stamp_by_vcrbit-dbzdxlc](https://github.com/user-attachments/assets/ab2a48b1-680c-4dd1-b185-98858e7bbd5e)
+
+
+
+
 ![jjba__melone_stamp_by_whitenoize_dbsrl6b-fullview](https://github.com/user-attachments/assets/cc5d4a89-cf2d-4598-a52a-c3a68eb5d311)
 ![jjba__risotto_nero_stamp_by_whitenoize_dbsrkma-fullview](https://github.com/user-attachments/assets/62618540-90ac-443e-ab04-b7185bb29632)
 ![jjba__prosciutto_stamp_by_whitenoize_dbsrl3g-fullview](https://github.com/user-attachments/assets/9c4305f6-6b17-408e-ba09-0ce4d71903bb)
@@ -84,4 +105,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
 
 
-c+h is ok, chats are welcome, i am very friendly! i like la squadra (...minus ghiaccio.) and overwatch. dont be scared to say hi, i probably wont bite...
+c+h is ok, chats are welcome, im friendly! i like la squadra (...minus ghiaccio) and overwatch.
+
+
+
