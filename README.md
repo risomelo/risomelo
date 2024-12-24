@@ -105,7 +105,7 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
 
 
-c+h is ok, chats are welcome, im friendly! i like la squadra (...minus ghiaccio) and overwatch.
+c+h is ok, chats are welcome, im friendly, just shy! i like la squadra (...minus ghiaccio) and overwatch.
 
 
 
