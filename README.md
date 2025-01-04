@@ -106,7 +106,6 @@
 
 
 c+h is ok, chats are welcome, im friendly, just shy! i like la squadra (...minus ghiaccio) and overwatch.
-pls dni -13, iwc -16, be mindful, be considerate 
 
 
 
