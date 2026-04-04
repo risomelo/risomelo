@@ -2,7 +2,8 @@
  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎![1000082856](https://github.com/user-attachments/assets/6dfac9f3-5a96-4622-9132-e0c1fa7ac082)
  
 
-*best viewed on desktop, i think
+ ‎
+
 
 ![tumblr_inline_p1crmcDmzg1uli46t_500](https://github.com/user-attachments/assets/c001f820-a416-427c-908f-98306b092dee) 
 ![tumblr_1866a26ed16b63fa0067bc47d980bfe8_2351d317_250](https://github.com/user-attachments/assets/80a3df49-ab09-418f-9801-1d3725e88773)
@@ -58,6 +59,6 @@
 
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
+‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 
