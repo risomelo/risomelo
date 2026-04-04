@@ -1,7 +1,6 @@
 
- ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎![daymb2u-003381dc-4894-492f-b818-c8093b6ea054](https://github.com/user-attachments/assets/7ee414dd-3222-478d-a170-e8d8df334db5)  ‎ ‎ ‎
- ‎‎![ezgif-1-3b56b056b6](https://github.com/user-attachments/assets/c9e8f9a7-a319-434e-a709-c6a05c0eea56)  ‎ ‎ ‎
-![daymbdh-c5acfef0-0b27-479c-a96a-9198f0357921](https://github.com/user-attachments/assets/966498fc-c713-46c4-9073-3c0b73e905db)
+ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎![1000082856](https://github.com/user-attachments/assets/6dfac9f3-5a96-4622-9132-e0c1fa7ac082)
+ 
 
 *best viewed on desktop, i think
 
@@ -30,8 +29,7 @@
 
 
 
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
+![1000082859](https://github.com/user-attachments/assets/88b3d065-745d-4bd4-8208-606b61cb5ce6)
 
 
 
