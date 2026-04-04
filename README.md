@@ -3,7 +3,7 @@
  ‎‎![ezgif-1-3b56b056b6](https://github.com/user-attachments/assets/c9e8f9a7-a319-434e-a709-c6a05c0eea56)  ‎ ‎ ‎
 ![daymbdh-c5acfef0-0b27-479c-a96a-9198f0357921](https://github.com/user-attachments/assets/966498fc-c713-46c4-9073-3c0b73e905db)
 
-*best viewed on desktop
+*best viewed on desktop, i think
 
 ![tumblr_inline_p1crmcDmzg1uli46t_500](https://github.com/user-attachments/assets/c001f820-a416-427c-908f-98306b092dee) 
 ![tumblr_1866a26ed16b63fa0067bc47d980bfe8_2351d317_250](https://github.com/user-attachments/assets/80a3df49-ab09-418f-9801-1d3725e88773)
@@ -69,50 +69,5 @@
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
-
-
-![prettiestgirlinthemorgueByratlineZ](https://github.com/user-attachments/assets/a6e8582e-741b-4d46-b308-7237c05704d0)
-![spencersByratlineZ](https://github.com/user-attachments/assets/c8e3f067-7e05-4948-9c90-9839389788ca)
-![hotsexydeadByxXxKILLJ0Y-KULTxXx](https://github.com/user-attachments/assets/7c053c6a-61d2-4237-9681-b81c60f85d4d)
-![gimme200dollarsBymurderawrz](https://github.com/user-attachments/assets/12a39272-026f-4010-aee5-cada779f3668)
-![tumblr_inline_pe6m1dhbDl1v11djx_1280](https://github.com/user-attachments/assets/39e7e658-e2a9-4981-a90c-e404c15c0ebe)
-![decompismyaddictionByratlineZ](https://github.com/user-attachments/assets/495ed365-de8c-46ae-959a-e8d6480c8b47)
-
-![mfimawesome](https://github.com/user-attachments/assets/f30bb28b-178c-46fe-b025-af0b0bdef8cb)
-![beadsbypuppystamps](https://github.com/user-attachments/assets/5930cd10-758a-444d-b29b-06ea4cf92f11)
-![18nakedcowboysintheshowersatramranchByxXxKILLJ0Y-KULTxXx](https://github.com/user-attachments/assets/d9c7981d-e583-40ba-ae31-213a27b46a5c)
-![menlikemycoffeeByDaakukitsune](https://github.com/user-attachments/assets/748cf1df-20bb-4d05-860d-27e0cd7665d5)
-![di4n2uz-7a831ac7-8514-4353-8a67-8ace1ba0593a](https://github.com/user-attachments/assets/3f8324bc-8bbe-474c-9fd8-03cd25e5e550)
-![needs_more_gay_by_daakukitsune](https://github.com/user-attachments/assets/f39bb6a3-7644-4136-b5f4-4961d9e91464)
-
-
-![ee15fc20](https://github.com/user-attachments/assets/5385d9df-5d38-4f1b-b0fc-aabd5a389c29)
-![biohazardByratlineZ](https://github.com/user-attachments/assets/e8f10fd2-6486-44f3-ad19-1429d268c08e)
-![dc28oi1-946c5b87-8ba2-4d99-912b-c012a13b4747](https://github.com/user-attachments/assets/8a5094c1-2f73-46ee-bdcf-26f6e3c503cf) 
-![irflashbyaunt-arctica](https://github.com/user-attachments/assets/74279593-ed25-47fd-9e7c-f44f992ffb76) 
-![penishate](https://github.com/user-attachments/assets/bbab686d-fc21-4fa8-aace-be1635620d5d) 
-![butt](https://github.com/user-attachments/assets/fdeee0fa-30dc-4b77-8e38-392349b39073)
-
-![proudtobealoser](https://github.com/user-attachments/assets/89910ad9-d6bf-404f-8c49-4dc32547b9cf)
-![myuke](https://github.com/user-attachments/assets/07ed9709-904d-42aa-84ee-4d90e06f75ab)
-![glowsticks](https://github.com/user-attachments/assets/5d680354-835d-40c3-9c99-96596c991dcc)
-![proudtobeaplaguerat](https://github.com/user-attachments/assets/70a9d4ee-e536-4764-8a3d-b23fbc66ad7a)
-![areyouafreak](https://github.com/user-attachments/assets/39674e1e-d840-4c27-b6f5-34a90842c2bd)
-![b2bb4c80](https://github.com/user-attachments/assets/8f2c6933-441b-4fb5-a594-ca3e6046da3a)
-
-‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
-
-![jjba__melone_stamp_by_whitenoize_dbsrl6b-fullview](https://github.com/user-attachments/assets/cc5d4a89-cf2d-4598-a52a-c3a68eb5d311)
-![jjba__risotto_nero_stamp_by_whitenoize_dbsrkma-fullview](https://github.com/user-attachments/assets/62618540-90ac-443e-ab04-b7185bb29632)
-![jjba__prosciutto_stamp_by_whitenoize_dbsrl3g-fullview](https://github.com/user-attachments/assets/9c4305f6-6b17-408e-ba09-0ce4d71903bb)
-![jjba__illuso_stamp_by_whitenoize_dbssfvx-fullview](https://github.com/user-attachments/assets/4d09464e-f6bb-4f76-a931-e98d70c2605b)
-![jjba__narancia_ghirga_stamp_by_whitenoize_dbsrkf7-fullview](https://github.com/user-attachments/assets/bb27d835-2305-42eb-84fa-8f729c2f25bd)
-![jjba__panacotta_fugo_stamp_by_whitenoize_dbsrkee-fullview](https://github.com/user-attachments/assets/70565f69-24ee-49d2-8ff4-fe4c8a8152e3)
-
-
-
-‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ![7bf95592](https://github.com/user-attachments/assets/5327a648-5879-422e-afa4-224e61928ee0)
-
-
 
 
